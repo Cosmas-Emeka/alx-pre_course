@@ -1,1 +1,1 @@
-My first readme
+Working together with like-minds feels really good
