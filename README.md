@@ -1,2 +1,2 @@
 Working together with like-minds feels really good
-Yeah!
+Yeah it does feel good
